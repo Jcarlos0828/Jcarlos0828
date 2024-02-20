@@ -1,5 +1,8 @@
-### Hi there 👋
+### Software Engineer | Human Being | Mental rockstar | Love ocean creatures
 
+Please call me JC or Carlos. Reach out for whatever reason, I love side quests.
+
+Find me in LinkedIn: linkedin.com/in/jcdelcastillo
 <!--
 **Jcarlos0828/Jcarlos0828** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
